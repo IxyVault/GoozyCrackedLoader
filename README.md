@@ -1,7 +1,7 @@
 # GoozyCrackedLoader
 Cracked loader by Ixy   , GroozyShitPasting UD on Valorant and Fortnite
 ----------------------------------------------------------------------------------------------------------------
-Download that UD pasta Loader: https://mega.nz/file/E59WFCjB
+Download that UD pasta Loader: https://mega.nz/file/E59WFCjB#h7X3d1yGKOZTVFas2WHo8xjDMmBELw1e_kzAEk1U7Mw
 ----------------------------------------------------------------------------------------------------------------
 
 𝕮𝖗𝖆𝖈𝖐𝖊𝖉 𝕭𝖞 𝕴𝖝𝖞𝖁𝖆𝖚𝖑𝖙
